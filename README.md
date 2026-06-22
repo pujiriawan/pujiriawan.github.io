@@ -1,1 +1,0 @@
-![Professional Service Journey Curriculum Vitae](CV.drawio.svg)
